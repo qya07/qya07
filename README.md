@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @qya07
+- 👀 I’m interested in graphic design
+- 🌱 I’m currently learning to bea a creator
+- 💞️ I’m looking to collaborate on canvas and all about graphic design
+- 📫 How to reach me by contacting my gmail
